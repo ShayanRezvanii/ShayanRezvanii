@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Shayan Rezvani , I live in tehran
+I'm Shayan Rezvani 
 
 
 ## 🌐 Socials:
